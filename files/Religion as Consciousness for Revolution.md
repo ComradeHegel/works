@@ -1,8 +1,2 @@
-Status:  
-Disagree
-
-Title:  
-Alternative forms of consciousness in revolution 
-
-Text:  
+**Alternative forms of consciousness in revolution**  
 If a metaphor of the bourgeoisie causing pain to the proletariat is premised, one could say that consciousness is the painkiller. Class-consciousness is the most powerful painkiller, attacking the root of the problem and seeding it out. However, religion can also act as a consciousness. Marx wrote, "religion is the opiate of the masses," so religion can also be a painkiller. Religion doesn't address the pain but diverts attention away from it and focuses on an alienated projection of themselves. Feuerbach's famous quote is "If man is to find contentment in God, he must find himself in God." The proletariat, exploited by the bourgeoisie, intend to find some way to assert thier will and preserve their miserable life. Religion seems like the profound realization that actualizes consciousness, giving the proletariat false hope. This is how religion acts as an opiate. Religion can be harmful to class-consciousness, but organized religion provides a community to allow individuals to have a shared belief. This consciousness can still be the driving force of a revolution against oppression. In the Haitian Revolution, slaves banded together on account of their Voudou religion, and rose against plantation owners because the god of love supposedly told them to do so. The slaves did not seek to establish a dictatorship of the enslaved, but intended to resist the oppression put on them no matter the source. Religion here played an active role by attacking the oppression, albeit not the source, and it ended slavery in the French colonies. The consciousness created by religion therefore is feasible to invoke change in feudal society, but prevents class-consciousness and is therefore unfeasible for a communist revolution. 
