@@ -1,8 +1,8 @@
-Status: 
+Status:  
 Slightly Disagree
 
-Title: 
+Title:  
 The course of the revolution
 
-Text: 
+Text:  
 Class-consciousness is an essential aspect for a communist revolution. Through unions, the proletariat can gain class-consciousness, planting the seeds for the vanguard party to lead a revolution and establish a dictatorship of the proletariat. During this dictatorship of the proletariat, the working-class is raised to the level of power. There will be no need for military suppression of the bourgeoisie and petty bourgeoisie due to the proletariat majority. Promptly after this, rapid nationalization must occur while ensuring that the dictatorship of the proletariat continues. If the working-class lose their power, the state of the revolution fails and falls back to capitalism. Nationalization while the proletariat hold power creates public property. This stage of the revolution is called "socialism". During this stage, policies must be implemented to stop ecological ruin and implement free, equal education as well as healthcare. Progressive politics should be engrained in the education, suppressing counterrevolutionary and conservative tendencies. The ideals of democracy need to be put in the population. A procession-ready populace is educated on all aspects of oppression, and is knowledgeable about multiculturalism, direct democracy and capitalism's exploits. To avoid ableism, communities of those less able or unable to understand complex concepts as these need to bond together in their vulnerability and need to be supported throughout the revolution. Furthermore, secularization should slowly occur. Once the population is procession-ready the final stage of the revolution must commence, that is the transitions to a stateless classless moneyless society. The state will be abolished by the People's Council (a digital democratic council of every person of the nation). The militia will be abolished until war is necessary, maintaining a pacifist ideology. Federal Councils (city-scoped) will manage distribution of needs and production by ability. The continued ideals in education from the socialism stage of the revolution will be maintained. Automation will continue to expand in utility to allow more time for pursuit of the human species-being.
