@@ -6,3 +6,4 @@
 4. Alternative forms of consciousness in revolution. Found in the same document as (2). Disagree.
 5. To Feudalism. A slightly rushed exposition of historical materialism till fuedalism as outlined in The German Ideology.
 6. A Second Treatise on Revolution. An in-depth outline of my thoughts on revolution, as well as certain concepts of Marxist theory. Sourced extensively.
+7. A critique of the article Can Democracy and Communism Co-Exist. A critical analysis of comrade Galaxy's article on communism and democracy.
