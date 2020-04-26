@@ -14,3 +14,5 @@ A slightly rushed exposition of historical materialism till fuedalism as outline
 An in-depth outline of my thoughts on revolution, as well as certain concepts of Marxist theory.
 7. A critique of the article Can Democracy and Communism Co-Exist  
 A critical analysis of comrade Galaxy's (Galaxy#9968 on discord) article on communism and democracy.
+8. Pamphlet-To All Comrades  
+A propaganda pamphlet. Finished on March 24, 2020.
