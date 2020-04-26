@@ -20,7 +20,7 @@ Note: I found this work in the same document where I found "A Treatise on Revolu
 Source: To Feudalism.pages  
 Written: February 17, 2020 to March 1, 2020  
 Note: A slightly rushed exposition of historical materialism till fuedalism as outlined in The German Ideology.  
-6. **On Revolution**
+6. **On Revolution**  
 Source: A Second Treatise on Revolution.pages  
 Written: February 26, 2020 to April 26, 2020    
 Note: An in-depth outline of my thoughts on revolution, as well as certain concepts of Marxist theory.
