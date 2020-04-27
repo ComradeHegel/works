@@ -25,6 +25,7 @@ Source: A Second Treatise on Revolution.pages
 Written: February 26, 2020 to April 26, 2020    
 Note: An in-depth outline of my thoughts on revolution, as well as certain concepts of Marxist theory.
 7. **A critique of the article Can Democracy and Communism Co-Exist**  
+Written: April 2, 2020 to April 3, 2020  
 Note: A critical analysis of comrade Galaxy's (Galaxy#9968 on discord) article on communism and democracy.
 8. **To All Comrades**  
 Source: Pamphlet-To All Comrades.pages  
