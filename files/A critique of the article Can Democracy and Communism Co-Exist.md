@@ -10,7 +10,7 @@ This is incorrect. Our society is divided into two classes, and strata of each c
 This characterization is incorrect. What is society? The whole of the base and the superstructure. The contradiction between the material conditions of the mode of production and the ideological superstructure which springs forth from this is what constitutes society.  
 The proletariat is a class, and a "member" of the economic base. The labor of the proletariat sustains a ruling-class, but does not "produce" society. Society is produced by the contradiction between the economic base and the superstructure.  
 What can be correctly said is as follows: The bourgeoisie are the owners of the means of production, and the proletariat are the users of the means of production. The bourgeoisie direct the production process through this monopoly.  
-What is differet about this conception? It follows the scientific analysis of class.
+What is different about this conception? It follows the scientific analysis of class.
 
 > It is the bourgeoisie which collect surplus value and accumulates it.
 
